@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MiriamSteinberg13
 - 👀 I’m interested in cool add, e-com and game technological projects
-- 🌱 I’m currently learning data analytics
+- 🌱 I’m currently learning data analytics in TripleTen Israel
 - 💞️ I’m looking to collaborate on data 
 - 📫 How to reach me : best way by tg (@mariashat) or here or you can also write me by mail mariasha.steunberg@gmail.com
 
