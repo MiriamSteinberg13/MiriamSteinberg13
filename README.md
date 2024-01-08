@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MiriamSteinberg13
-- 🚀 Tech wizard with 15 years of B2B SaaS mastery—optimizing, orchestrating, and decoding market mysteries
-- 👀 Diving deep into analytics, decoding market mysteries, and dancing across departments for out-of-this-world product and marketing adventures.
+- 🚀 15 years crafting cool tech stuff! 🌐 Master of B2B SaaS magic – optimizing, operating, and globetrotting for stellar partnerships.
+- 📊 Diving deep into analytics, decoding market mysteries, dancing across departments and play matchmaker for out-of-this-world product and marketing adventures.
 - I’m interested in cool add, e-com and game technological projects
 - 🌱 I’m currently learning data analytics in TripleTen Israel
 - 💞️ I’m opened to collaborate
